@@ -1,1 +1,1 @@
-# Ficha-Cadastral---Pastoral-do-Dizimo
+# Ficha-Cadastral-do-Dizimista
