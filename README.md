@@ -1,1 +1,1 @@
-# Ficha-Cadastral---Pastoral-do-D-zimo
+# Ficha-Cadastral---Pastoral-do-Dizimo
